@@ -1,4 +1,4 @@
-Here's a detailed description of each task:
+
 
 Task 1A:
 
